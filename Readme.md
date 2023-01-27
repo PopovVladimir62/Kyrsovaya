@@ -6,4 +6,4 @@
 3. Уменю работать в команде, дружелюбный настрой, экологичный фидбек
 4. Гибкость ума и чувство юмора
 
-/Users/vladimir/Desktop/kyrsovaya/img/coYZAAFtgM0.jpg
+![image](https://user-images.githubusercontent.com/122349227/215042274-a0768f98-caa2-4077-93b3-e28d806f1056.png)
